@@ -1,1 +1,1 @@
-# zemli-bude-legshe
+# Землі буде легше
